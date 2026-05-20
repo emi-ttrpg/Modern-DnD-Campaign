@@ -1,0 +1,1 @@
+A younger Dwarven man, the apprentice of [[Don - The Mechanic (Deceased)|Don]] at [[Modren Mechanics]]. He seems to know more about what's happening regarding [[Charlotte]] and is currently in a safe location despite the recent attack at the shop.

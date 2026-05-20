@@ -1,0 +1,1 @@
+The country of Cormyr, across the dessert from the [[S.C.C.S]] is its opposition. A Mageocrcy known for wanting to keep magic from being eradicated. [[The Purple Dragon Knights of Cormyr]] have sent multiple agents to [[Welcome to Paragon City|Paragon city]] in an attempt to infiltrate and disrupt operations aimed at the destruction of magic.

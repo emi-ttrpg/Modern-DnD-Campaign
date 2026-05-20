@@ -1,0 +1,1 @@
+Ismael "Axel" Spillner was a [[The Purple Dragon Knights of Cormyr|Purple Dragon Knight]] and one of [[Alistar -The Wolf- Carmichal|Alistar's]] old contacts. The father of [[Dominique Spillner]], Ismael reportedly died in a race 10 years ago in a match at the Franklin Track against [[Francis Denton]].

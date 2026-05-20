@@ -1,0 +1,1 @@
+Alistar Carmichal also known as sell sword 015 "The Wolf" is a [[The Purple Dragon Knights of Cormyr|Purple Dragon Knight]] of Cormyr. 

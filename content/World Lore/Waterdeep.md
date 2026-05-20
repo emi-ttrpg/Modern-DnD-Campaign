@@ -1,0 +1,1 @@
+Carmie [[The Castanova Family|Castanova]] is the one who "runs" Waterdeep,  a city north of Paragon it's largely known for it's rampant crime and less lawful denizens.

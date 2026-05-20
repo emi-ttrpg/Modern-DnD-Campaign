@@ -1,0 +1,1 @@
+Has a gang of worshippers, [[The Goblins - Worshippers of Maglubiyet]]

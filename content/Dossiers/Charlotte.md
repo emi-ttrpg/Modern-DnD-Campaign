@@ -1,0 +1,5 @@
+Charlotte is neither definable as a vehicle or a person, but we know in some way, she has a soul. Currently located in a drive inside of a large "soccer mom van". She was previously integrated in various sports car shells. In her latest upgrades, she has gained a GPS in addition to the radio that previously was installed by [[Don - The Mechanic (Deceased)|Don]]. 
+
+This GPS upgrade also gave us an app, so now we can remotely let Charlotte know we need a pick up or tell her to head other places potentially.
+
+It's evident that Don had some sort of connection to Charlotte and vice versa, as she nearly tried to go on a rampage of her own after learning of his death. Charlotte is cagey at best, often not willing to divulge much information to the party. [[Kanaan Kasandra]] is heavily involved in wanting to attain the drive. However, it is unlikely he realizes the full extent of what the drive is or what that means. We are uncertain why he wants it.

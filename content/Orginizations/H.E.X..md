@@ -1,0 +1,5 @@
+H.E.X. is the enforcement agency of the [[S.C.C.S]] tasked with ensuring magic is not being used by the people. The ultimate goal being controlling magic for the government and not allowing the public access to the resources. They have devices they can use to track powerful magic signatures.
+
+[[Magistrate Samuel Declan]] is an example of H.E.X.'s brutal enforcement of it's policies. Declan, having innate magical abilities, is forced to have dampening bolts which prevent any use of his magic. This innate magic also prevents him from moving up and holding a higher position, something expressed great frustration about to Scott and Ava in a conversation.
+
+H.E.X. doesn't care about the lives of it's operatives, at first using clones to attempt to hold control of magic by giving them an innate ability to reflect magic. However, with the clones being people and some beginning to [[The Purple Dragon Knights of Cormyr|defect]], they have to find another solution for their "expendable" soldiers. The use of clones doesn't seem to be public knowledge, in the summit we attend they were only referred to as "Standard operatives".
