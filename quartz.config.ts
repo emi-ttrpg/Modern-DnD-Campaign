@@ -16,7 +16,7 @@ const config: QuartzConfig = {
       provider: "plausible",
     },
     locale: "en-US",
-    baseUrl: "emi-ttrpg.github.io",
+    baseUrl: "emi-ttrpg.github.io/Modern-DnD-Campaign",
     ignorePatterns: ["private", "templates", ".obsidian"],
     defaultDateType: "modified",
     theme: {
