@@ -1,1 +1,2 @@
-Originally owned and operated by [[Don - The Mechanic (Deceased)|Don]], Modren Mechanics is the location where the party first gathered and learned of[[Charlotte]].
+A shop originally owned and operated by \[\[Don - The Mechanic (Deceased)|Don]], Modren Mechanics is the location where the party first gathered and learned of\[\[Charlotte]].
+
